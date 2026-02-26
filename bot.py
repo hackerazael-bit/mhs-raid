@@ -43,22 +43,23 @@ class spamButton(discord.ui.View):
 mhs purificou seu servidor
 ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓
 # servidor purificado pela mhs
-🥶⃤🥶⃤🥶⃤🥶⃤🥶⃤🥶⃤
+СИСТЕМА ВЗЛОМАНА
 mhs purificou seu servidor
 # servidor purificado pela mhs
 ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓
 mhs purificou seu servidor
 ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓
 # servidor purificado pela mhs
-🥶⃤🥶⃤🥶⃤🥶⃤🥶⃤🥶⃤
+СИСТЕМА ВЗЛОМАНА
 mhs purificou seu servidor
 # servidor purificado pela mhs
 ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓
 mhs purificou seu servidor
 ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓
 # servidor purificado pela mhs
-🥶⃤🥶⃤🥶⃤🥶⃤🥶⃤🥶⃤
+СИСТЕМА ВЗЛОМАНА
 mhs purificou seu servidor
+|| https://cdn.discordapp.com/attachments/1475302058914742364/1476630742397222933/aac6fef82d3a6edbd86ea5ac96a33a30.jpg?ex=69a1d30b&is=69a0818b&hm=e33c1fdbe2c232558fe9ac9c20ded06d47c03cd8012700ff39e4f8b4052e13d0& ||
 
 https://discord.gg/m8EzwdSZmy"""
 
